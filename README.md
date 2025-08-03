@@ -46,4 +46,4 @@ I am a recent **B.Tech graduate in Computer Science and Engineering** with a str
 
 ---
 
-⭐ _"Always learning, always building."_ ⭐
+⭐ _"Always learning. Let’s create and innovate together."_ ⭐
